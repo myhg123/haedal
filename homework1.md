@@ -1,7 +1,7 @@
 #**부산에서 가볼만한곳 추천!**
 >##<center>민락수변공원</center>
 
-![민락수변공원](https://www.visitbusan.net/uploadImgs/files/cntnts/20191225174730014_ttiel)
+![민락수변공원](https://t1.daumcdn.net/cfile/tistory/2712B63853E0FA3103)
 ##장점
 + 광안리에서 사알 걸어오면서 얘기하다 걸터앉아서 맥주한잔 하기 좋다.
 + 광안대교의 끄트머리를 보긴하지만 아이파크와 더베이가 보인다.
@@ -12,7 +12,7 @@
 
 >##<center>황령산 봉수대</center>
 
-![황령산](https://www.visitbusan.net/uploadImgs/files/cntnts/20191225174730014_ttiel)
+![황령산](https://t1.daumcdn.net/cfile/tistory/2444C94C592A45180E)
 ##장점
 + 야경이 이쁘다.
 + 부산 거의 대부분을 한번에 볼수있다.
